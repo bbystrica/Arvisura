@@ -5,3 +5,7 @@ A második világháború végefelé, mikor a hátráló német hadsereg a Kárp
 A partizánok egyik csoportját Szőnyi Márton vezette. Tudjuk, hogy ez a csoport csaknem teljesen megsemmisült, amikor Ózd tájékán leszálltak, s ott nyomban súlyos harcokba keveredtek. Egyrészüket elfogták, a többi Szőnyivel együtt hősi halált halt.
 
 Szalaváré Tura fiatal manysi harcos azonban néhány társával együtt megmenekült. Tura véletlenül Fülek tájekán ugrott ki a repülőgepből, s egy juhász lánya, Biricsák Mari elrejtette. Majd segített abban is, hogy társait megtalálja. Egy hónap múlva azonban, mikor mindketten bemerészkedtek Miskolcra, hogy ott a fogva tartott partizánokkal beszéljenek, a várost bombatámadás érte, s Mari életét vesztette.
+
+Tura árván maradt. De fogságban lévő társaival még tudott beszélni, és sok viszontagság után megtalálta a többieket és kapitányukat is. Ettől kezdve velük harcolt. Közvetlenül a háború befejezése előtt azonban Szombathelyen súlyosan megsebesült és hazánk területén hősi halált halt.
+
+A 348. Arvisurában Tura életének és halálának történetét írtam meg. Nem csak a bajtársi szeretet késztetett arra, hogy emléket állítsak egy fiatal manysi halászlegénynek. Egyéb okai is voltak vállalkozásomnak. Úgy érszem, a magyar nép nagy hálával tartozik Turának, s ezt a hálát igyekszem részben leróni, mert ő nemcsak egyszerű partizán volt. Többet tett ennél. Röviden most elmondom, hogy mit.
