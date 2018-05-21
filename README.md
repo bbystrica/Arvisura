@@ -1,2 +1,2 @@
 # Arvisura
-Arvisura transcription
+Arvisura as data | Adat az arvisurának
